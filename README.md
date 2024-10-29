@@ -1,1 +1,0 @@
-# koguchi.github.io
